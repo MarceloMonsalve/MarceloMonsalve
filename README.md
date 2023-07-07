@@ -7,7 +7,7 @@
 
 - 🤝 I’m looking for a job as a **software development**
 
-- 📫 How to reach me **marcelohakanson6@gmail.com**
+- 📫 How to reach me **mmonsalv@ucsc.edu**
 
 - ⚡ Fun fact **I can do a wheelie on a motorcycle 😱**
 
